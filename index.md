@@ -2,4 +2,4 @@
 title: Amateur Gravel Cyclist
 ---
 
-![Garcia](/assets/garcia.jpeg)
+![Background Image](/assets/towers-snow.jpeg)
