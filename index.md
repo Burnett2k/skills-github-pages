@@ -16,7 +16,9 @@ Covid-19 hit about the time Sawyer began riding on the Velo group rides. This gr
 
 Eventually, Sawyer moved to Washington where he continued to road bike in the Issaquah area. Lake Sammamish and Mercer Island were favorite routes.
 
-Currently, Sawyer resides in North Bend and has converted to riding mostly gravel trails. Sometimes road when it is necessary to get to the gravel trails. He is quite content with his Canyon Grail.
+Currently, Sawyer resides in North Bend and has converted to riding mostly gravel trails. Sometimes road when it is necessary to get to the gravel. He is considering getting a new frame which can hold bigger tires.
+
+Sawyer spends a lot of time riding on the [Snoqualmie Valley Trail](https://en.wikipedia.org/wiki/Snoqualmie_Valley_Regional_Trail), [Iron Horse trail](https://en.wikipedia.org/wiki/Palouse_to_Cascades_State_Park_Trail), and the [Snoqualmie Tree Farm](https://www.snoqualmiewa.gov/457/Snoqualmie-Tree-Farm).
 
 Some noteworthy events Sawyer has completed in the past:
 
